@@ -1,1 +1,1 @@
-# Sales-Data-Analysis-and-Reporting-for-a-Retail-Chain ![413681_Race car with sleek design, captured in a high spe_xl-1024-v1-0](https://github.com/user-attachments/assets/47248933-7aa7-4487-8721-97030737cabb)
+# Sales-Data-Analysis-and-Reporting-for-a-Retail-Chain 
